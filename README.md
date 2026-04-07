@@ -1,2 +1,0 @@
-# Bruno-Garcia
-Sobre Mim
